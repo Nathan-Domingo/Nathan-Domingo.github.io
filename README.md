@@ -1,1 +1,0 @@
-# Nathan-Domingo.github.io
